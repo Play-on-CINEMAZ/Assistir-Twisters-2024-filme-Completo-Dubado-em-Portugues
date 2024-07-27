@@ -6,7 +6,7 @@ Assista aqui 🔴👉 [Twisters 2024 Filme Completo Dublado](https://cornercinem
 
 Baixe aqui 🔴👉 [Twisters 2024 Filme Completo Dublado](https://cornercinema.com/pt/movie/718821/twister)
 
-![[https://cornercinema.com/pt/movie/718821/twister](https://i.imgur.com/G0oNDvu.png?gcxz)
+![https://cornercinema.com/pt/movie/718821/twister](https://i.imgur.com/G0oNDvu.png?gcxz)
 
 Kate Cooper, uma antiga caçadora de tempestades assombrada por um encontro devastador com um tornado, dedica-se agora a estudar os padrões das tempestades em Nova Iorque. O seu amigo Javi, que está a testar um sistema de rastreamento inovador, vai trazê-la de volta ao terreno onde se cruza com Tyler Owens, um influenciador digital, sedutor e imprudente que gosta de publicar as suas aventuras nas redes sociais. À medida que a temporada de tornados ganha intensidade, começa um fenómeno nunca visto: Katy, Tyler e a sua equipa estão no caminho de múltiplas tempestades que convergem para o centro do Oklahoma.
 
